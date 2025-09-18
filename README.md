@@ -1,0 +1,1 @@
+# tarefa-17-09-2025---compartilhado
